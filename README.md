@@ -1,4 +1,4 @@
-#botnet #wrldbotnet #ddosbotnet #ddosscript #ddosmethod #booter #ipstresser #ipbooter #stresser
+![Screenshot 2024-08-04 112523](https://github.com/user-attachments/assets/474c9162-5c09-4621-b600-ff62e76771ae)#botnet #wrldbotnet #ddosbotnet #ddosscript #ddosmethod #booter #ipstresser #ipbooter #stresser
 
 
  WRLD BOTNET - THE BEST & CHEAPEST BOTNET IN THE MARKET 
@@ -21,3 +21,4 @@ CONTACT INFORMATION
 Owner's Contact Information: https://t.me/tcpfed
 Wrld's Official Telegram Group: https://t.me/bigddos
 Wrld's Official PowerProof Telegram Group: https://t.me/wrldc2
+![Screenshot 2024-08-04 112523](https://github.com/user-attachments/assets/9c52b008-1c98-4491-9653-47649fc9174e)
